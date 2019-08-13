@@ -2,10 +2,10 @@
 
 ## Traveling Solo in Singapore Series
 1. Planning it all out
-> February 3, 2018 | [Post Link](https://www.stellaradventurer.com/planning-it-all-outtravel-solo-in-singapore/)
+> February 3, 2018 | [Post Link](https://liveitwith.tanya-jain.xyz/planning-it-all-outtravel-solo-in-singapore.html)
 
 2. People
-> March 13, 2018 | [Post Link](https://www.stellaradventurer.com/people-traveling-solo-in-singapore/)
+> March 13, 2018 | [Post Link](https://liveitwith.tanya-jain.xyz/people-traveling-solo-in-singapore.html/)
 
 3. Transport
 
@@ -19,5 +19,5 @@
 ## Royal Carribean Cruise :: Voyager of the Seas
 
 * Cruising and Aquanting in Voyager of the Seas
-> October 11, 2017 | [Post Link](https://www.stellaradventurer.com/cruising-aquainting/)
+> October 11, 2017 | [Post Link](https://http://liveitwith.tanya-jain.xyz/cruising-acquainting.html)
 
